@@ -46,8 +46,4 @@ Download Logo Link: https://image.ibb.co/gUAYNp/IMG_20180816_200350.jpg
 
 Contact: support@penchant.network
 
-Sincerely
-
-Thanks in anticipation
-
 The Penchant  Project Team
